@@ -18,7 +18,7 @@ https://www.facebook.com/groups/906156979855211/
 [Hither Green and Lee](https://chat.whatsapp.com/CKdDkuxm87w9hCFkvrbwym)  
 [Ladywell](https://chat.whatsapp.com/JPnsCvvl7tcCRiaXECyoti)  
 [Lewisham Central](https://chat.whatsapp.com/K1CeMAXPsEKEWB7N7ZbV4S)  
-[New Cross (includes Deptford south of Deptford station)](https://chat.whatsapp.com/F5QcYWAuj54FhlV1f3woWc)  
+[New Cross (Link to new page or expand list)
 [Hatcham Park (Area between Avonley, Hunsdon, Brocklehurst, New Cross rd)](https://chat.whatsapp.com/HxiuNhqpIyLE4X1U7JfoJc)  
 [Sydenham](https://chat.whatsapp.com/F2SzjyPoodG9aD5a29IEIo)  
 [Telegraph Hill](https://chat.whatsapp.com/Ds91FOu2zv5BNAUC7uSLZw)  
